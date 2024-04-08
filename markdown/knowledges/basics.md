@@ -16,4 +16,4 @@
 
 - Thứ ba, Hacker/Cheater ngày càng coi thường về mặt hiểu biết, sức mạnh, tự cho mình là mạnh, giỏi nhất và hiểu biết nhiều nhất, đi ngược lại với mục tiêu chính của cộng đồng.
 
-#### Với tình trạng của server Minecraft nói chung và cộng đồng Cheating nói riêng, tôi mong cộng đồng Cheating bớt ngu hơn, không còn tình trạng ảo tưởng sức mạnh, và các server Minecraft sẽ không còn P2W, để cộng đồng ngày càng lành mạnh hơn.
+### Tình trạng của server Minecraft nói chung và cộng đồng Cheating nói riêng đang càng xấu đi, tôi mong cộng đồng Cheating bớt ngu hơn, không còn tình trạng ảo tưởng sức mạnh, và các server Minecraft sẽ không còn P2W, để cộng đồng ngày càng lành mạnh hơn.
